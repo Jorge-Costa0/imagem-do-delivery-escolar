@@ -1,0 +1,1 @@
+# imagem-do-delivery-escolar
